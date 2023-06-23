@@ -1,2 +1,2 @@
 *Emphasize*
-No Day Off
+Zero Day Off
